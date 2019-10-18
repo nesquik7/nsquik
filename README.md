@@ -1,1 +1,1 @@
-# nsquik
+# nsquik I300STER
